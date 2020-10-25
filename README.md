@@ -3,3 +3,8 @@
 
 Moin Meister
 
+### Erwartungen an das Studium
+
+*Neues Lernen
+*Spaß
+*Schaffen
